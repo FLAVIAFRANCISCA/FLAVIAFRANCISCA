@@ -27,7 +27,7 @@
 💬 Ask me about: About my latest project!
 
 
-📫 How to reach me: Connect with me on LinkedIn, GitHub, or Instagram.
+📫 How to reach me: Connect with me on LinkedIn.
 
 
 💡 Fun fact: I blend creativity with technology to turn bold ideas into stunning realities!
